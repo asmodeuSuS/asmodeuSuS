@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @asmodeuSuS
 - 👀 I’m interested in gaming
-- 🌱 I’m currently learning 3d designing
+- 🌱 I’m currently learning a little bit of everything
 - 💞️ I’m looking to collaborate on a metaschool
 
 <!---
